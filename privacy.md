@@ -1,5 +1,3 @@
-# Smart Alerts Privacy Policy
-
 **Last Updated: August 13, 2025**
 
 ## Introduction
